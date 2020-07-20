@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to my secret bloooooog
 
-I'm glad you are here. I plan to talk about ...
+I CAN'T believe someone is actually viewing this.
